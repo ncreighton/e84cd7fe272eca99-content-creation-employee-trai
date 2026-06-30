@@ -1,0 +1,2 @@
+# e84cd7fe272eca99-content-creation-employee-trai
+content creation professionals waste hours on spending hours building a system before you can actually use it. This fixes that.  Pre-built databases, views, and formula fields — ready to duplicate and use. Fully documented: every section explained so you know exactly what to customize.  ## What's Included  - Content Creation Employee Training Porta
